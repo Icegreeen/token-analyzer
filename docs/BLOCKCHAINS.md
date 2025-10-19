@@ -382,3 +382,6 @@ Este documento é atualizado conforme:
 
 **Desenvolvido com ❤️ para ajudar traders a evitar scams e tomar decisões informadas**
 
+
+
+
